@@ -6,9 +6,9 @@ sfsa;;
 ;fdffㅇ언제'ㅁㅁㅁㄷㄷ
 ;ㅇㅏㅓㅏ''''''''
 ;dfssgggggㅓㅗㅓㅗㅓㅗwww
-;dfsdddㅓㅗㅓㅗㅓㅗ
+;dfsdddㅓㅗㅓㅗㅓㅗㅏㅏㅏ
 ewddqqqqㄴㄴ
-;;ㅣㅣㅌㅌ
+;;ㅣㅣㅌㅌㅣ
 dfsg
 fdsahghstwtre
 11
